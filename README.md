@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kirklandben
-- 👀 I’m interested in taking the fewer steps to reach my objective
+- 👀 I’m interested in taking the fewest steps to reach my objective
 - 🌱 I’m currently learning all there is to know about health care!
 - 💞️ I’m looking to collaborate on everything. If you are working on it, I want to know more about it
 - 📫 How to reach me ...
